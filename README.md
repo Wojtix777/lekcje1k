@@ -1,1 +1,1 @@
-### Zbiór lekcji bo tak deal with it #packwatch
+### Zbiór lekcji bo tak deal with it
