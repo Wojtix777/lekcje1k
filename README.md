@@ -1,1 +1,1 @@
-# Zbiór lekcji z angielskiego (bieda z nędzą)
+# Zbiór lekcji z angielskiego (bida z nędzą)
