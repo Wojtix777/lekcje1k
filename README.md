@@ -1,1 +1,1 @@
-# Zbiór lekcji bo tak deal with it
+# Zbiór lekcji z edb (a mimir)
