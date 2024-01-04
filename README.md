@@ -1,1 +1,1 @@
-# Zbiór lekcji bo tak deal with it
+# Zbiór lekcji z eutk (wow jakieś notatki są?
