@@ -1,1 +1,1 @@
-# Zbiór lekcji z angielskiego (bida z nędzą)
+# Zbiór lekcji z metamfetaminy
